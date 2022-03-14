@@ -1,3 +1,3 @@
-Integrated Project By: Tamer Ali, Yousif Amin
+Islamic Project By: Tamer Ali
 
-About: Natural Disasters
+About something idk in arabic lol
